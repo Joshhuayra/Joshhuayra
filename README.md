@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Joshhuayra
+- 👀 I’m interested in ROBLOX
+- 🌱 I’m currently learning Adobe Animate
+- 📫 Want help contact me : ken041110@gmail.com
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: ROBLOX First logo was drawn by david bazucki's Dad
